@@ -1,0 +1,1 @@
+Senama oministak
